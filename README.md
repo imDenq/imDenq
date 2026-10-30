@@ -1,1 +1,1 @@
-Théo KASZAK - ESGI B3 - France
+Théo KASZAK - ESGI M2 - France
